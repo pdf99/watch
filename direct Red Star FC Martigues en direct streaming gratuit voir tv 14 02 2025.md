@@ -1,3 +1,9 @@
+📺📱👉◄◄🔴 https://t.co/Tcmc3ikOeP
+
+📺📱👉◄◄🔴 https://t.co/Tcmc3ikOeP
+
+
+
 Le Paris FC recolle en tête, le FC Annecy se relance, le FC Martigues retombe dans ses travers : le récap de la soirée
 Ce vendredi soir à 20 heures, 5 matchs de Ligue 2 ont ouvert la 22ème journée du championnat. 
 LIVE 2024/2025 12ème journée : Martigues / Red Star FC | Red Star Football Club
