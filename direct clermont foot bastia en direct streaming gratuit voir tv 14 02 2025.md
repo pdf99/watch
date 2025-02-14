@@ -1,6 +1,20 @@
-Ligue 2: le Clermont Foot à la recherche d'une éclaircie face à Bastia
-Clermont-Ferrand
-De Emmanuel Moreau
-Jeudi 13 février 2025 à 15:03
-Par ici Pays d'Auvergne
-Le Clermont Foot reçoit Bastia ce vendredi pour la 23e journée de Ligue 2. Les clermontois restent sur trois défaites consécutives et voient les équipes de bas du classement se rapprocher d'un peu trop près. Pour ne rien arranger, il faudra faire avec de nombreux absents.
+Clermont Foot face à Bastia commence le 14 févr. 2025 à 19:00 UTC au Stade Gabriel Montpied stade, Clermont-Ferrand ville de, France. C'est un match de Ligue 2.
+1 rencontres cette saison entre Clermont Foot et Bastia. A ce jour, Clermont Foot est classé 13e, tandis que Bastia est classé 9e. Comparez les meilleurs joueurs de chaque équipe ? Le systéme de notation Sofascore's assigne des notes spécific pour chaque joueur en fonction de plusieurs facteurs.
+Sur le live Sofascore, vous trouverez les face à face entre Clermont Foot et Bastia. Sofascore est la meilleure façon de suivre ce match avec plein de fonctionnalités. Par exemple vous pouvez:
+Sachez qui a marqué dans le match en direct
+Obtenez les informations sur l'équipe dominant le match en utilisant Attack Momentum
+Suivez les statistique détaillées comme la possession, les tirs, les corners, les grosses occasions, les cartons, les passes clés, les duels et plus
+Suivez tous les matchs à domicile et à l'éxtérieur en Ligue 2
+Regardez le favoris selon la communauté Sofascore.
+Toutes ces fonctionnalités peuvent vous aider à faire votre prédiction entre Clermont Foot et Bastia. Bien que Sofascore ne vous permette pas de parier directement, vous y trouverez les meilleures cotes et sites de paris sportifs. Les cotes en direct de U-TV sont consultables sur la section live de Football .
+Où regarder Clermont Foot vs Bastia ? Dans la section TV, vous trouverez la liste des chaînes diffusant Clermont Foot – Bastia en direct. Vous pouvez également voir le match via nos partenaires paris sportifs ou via les liens légaux sur Sofascore.
+Détails de l'événement:
+NOM: Clermont Foot - Bastia
+DATE: 14 févr. 2025
+TEMPS: 19:00 UTC
+STADE: Stade Gabriel Montpied, Clermont-Ferrand, France
+Plus d'informations:
+Clermont Foot scores en direct , calendrier et résultats
+Bastia scores en direct , calendrier et résultats
+Sofascore résultats en direct est disponible pour iPhone, iPad, Android (sur le Google Play Store) et pour Window phone. Vous pouvez nous retrouver dans différentes langues sur ces plateformes sous le même nom de "Sofascore". Installez l'application Sofascore et suivez Clermont Foot Bastia en direct sur votre mobile!
+
